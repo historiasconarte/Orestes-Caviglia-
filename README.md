@@ -1,1 +1,2 @@
 # Orestes-Caviglia-
+Autor, guionista y director. Nació en Buenos Aires, el 9 estudió en la Escuela Experimental de Arte Dramático en el teatro Solís del vecino país bajo la dirección de Jacinta Pezzana. Finalizados sus estudios secundarios se entregó de lleno al teatro. Debutó en 1920 en una compañía dirigida por Atilio Supparo, pasando luego al conjunto donde eran titulares Fanny Brenna, Silvia Parodi y Nicolás Fregues, Actuó por algún tiempo con Defillipis Novoa y Gloria Fernández, realizando con unos y otros, giras por el interior de la República. 
